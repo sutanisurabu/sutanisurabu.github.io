@@ -1,2 +1,0 @@
-# sutanisurabu.github.io
-cringe
